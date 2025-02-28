@@ -15,4 +15,4 @@ We explore startup ideas, strategies, and resources tailored for individuals on 
 - 📝 Read our blog: [Website link]
 
 ---
-🌍 *Empowering neurodivergent entrepreneurs, one idea at a time.*
+🌍 *Empowering neurodivergent people, one idea at a time.*
